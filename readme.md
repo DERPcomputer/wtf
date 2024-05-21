@@ -1,0 +1,1 @@
+mark down is like whatever i dont get the point its like you either supoprt pictures or you don't like now you can ocr and all that ai stuff no need to have frameworks and dumb junk we can just go back to supporting bitmaps and click maps and then apps and things can go back to being easy to use and just small pixels worth. idno im rabling.
